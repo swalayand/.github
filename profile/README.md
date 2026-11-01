@@ -1,4 +1,4 @@
-## Produk pertama yang menginspirasi Swalayand Pi
+## Produk pertama yang menginspirasi Swalayand
 
 #### **Tl;dr semua pihak saling merasa gak enak.**
 
