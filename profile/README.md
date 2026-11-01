@@ -1,4 +1,4 @@
-## Produk pertama yang menginspirasi Apel Pi
+## Produk pertama yang menginspirasi Swalayand Pi
 
 #### **Tl;dr semua pihak saling merasa gak enak.**
 
